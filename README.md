@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Okieeee
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning Python
+- 📫 How to reach me itsqnpoi@gmail.com
+- 😄 Pronouns: He/He/He/and also Him
+- ⚡ Fun fact: I love the GoldSrc engine
